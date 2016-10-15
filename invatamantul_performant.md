@@ -1,5 +1,15 @@
 #Învățământul performant
 
+Educația este unul dintre pilonii esențiali ai prosperității unui popor, al unei țări, poate cel mai important pilon. Educația va fi o prioritate majoră a politicii USR, alături de Justiție și Sănătate.
+
+Acțiunile și măsurile politice concrete pe care USR la va sprijini în domeniul educației vor fi ghidate de principiul ameliorării continue. Pentru ca aceasta să fie posibilă, nivelul educțional al fiecărui participant trebuie măsurat în mod obiectiv. 
+
+Primele măsuri vor privi dăscălii. Statutul lor profesional și remunerația lor trebuie mărită progresiv în mod semnificativ în așa fel încăt meseriile de învățător și profesor să fie atragătoare și pentru cei mai buni absolvenți. Rolul unei școli pentru dascăli, unde aceștia să poată, la intervale de timp adecvate, să revină și să își împrospăteze cunoștințele și să învețe din experiențe reușite atât din țară cât și din străinătate, este central. Această „școală normală superioară” (nume de inspirație franceză) va organiza și testarea inițială a învățătorilor și profesorilor, al cărui scop va fi stabilirea „liniei de plecare”, precum și testările ulterioare care să confirme progresele făcute de dăscăli în calitatea predării, progrese de care vor fi legate în mod direct sporurile succesive de remunerație pe care guvernul le va acorda.
+
+În paralel, un sistem instituțional multipartit va fi instaurat pentru măsurarea directă a calității învățământului, prin testarea obiectivă, la intervale regulate, a elevilor, la nivel național. Acest sistem va include desigur reprezentanți ai profesorilor dar și reprezentanți ai părinților precum și experți internaționali independenți implicați în ameliorarea învățământului la nivel european (Comisia Europeană) și internațional (OECD - studiul PISA).
+
+Strategia învățământului trebuie complet revizuită față de sistemul actual. Sursa cea mai 
+
 Construind o țară mai curată și mai prosperă, tinerii noștri, ai României, vor inventa viitorul, nu doar vor trăi în el. Fiecare copil, fiecare tânăr merită o șansă la o viață decentă şi o oportunitate egală la integrarea socială și profesională.
 
 În acord cu viziunea noastră depre dezvoltarea economică a României, viziunea despre învățământ are în centru încurajarea creativității copiilor și asigurarea unui curriculum consistent în domeniul tehnologiei informației, la toate clasele și pe toate filierele de învățământ. Trăim vremuri în care inclusiv mașinile folosite în agricultură sunt computerizate. În lumea de mâine, competențele digitale înseamnă acces pe piața de muncă, de orice fel. În egală măsură, într-o lume tot mai globalizată, cunoașterea limbilor străine înseamnă mai multe șanse de reușită la nivel individual și mai multe șanse de bună cooperare la nivel colectiv.
